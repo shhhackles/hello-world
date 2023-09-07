@@ -7,4 +7,4 @@
 ### Hobbies
 - Playing guitar
 - Fishing
-- Collecting: watches, sneakers, snapbacks
+- Collecting: watches, sneakers, snapbacks, guitars
